@@ -3,7 +3,7 @@
 
 ✦ feel free 2 sit by me if im alone on pt! 
 
-crowns are appreciated ^_^
+looking to make new friends plzplzplz int with me 
 
 ![](https://64.media.tumblr.com/9450765e9b44d4f9a6e93ccf8ccdff61/2dccbf50757330c8-b9/s400x600/421c6b41413622c32630ebff12f603f79196e40f.gifv)
 
