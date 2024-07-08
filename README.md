@@ -1,10 +1,7 @@
-![](https://64.media.tumblr.com/c636af2ac31ee0a3ef133227ca5480a9/708905e545820a33-32/s400x600/4080a323afe80da552de1d3f1a3df6344616450c.gifv)
+![](https://64.media.tumblr.com/3146d96fdd268b945c7530ffafb124ee/513bacf2f2133fe5-e9/s1280x1920/80e42b96de9581b30b3f7a825f6a0cd5dccfb4f8.pnj)
 
 *sign my [atabook](https://izutsumi.atabook.org)!*
 
-✦ feel free 2 sit by me if im alone on pt! 
-
-looking to make new friends plzplzplz int with me 
 
 ![](https://64.media.tumblr.com/9450765e9b44d4f9a6e93ccf8ccdff61/2dccbf50757330c8-b9/s400x600/421c6b41413622c32630ebff12f603f79196e40f.gifv)
 
