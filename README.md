@@ -1,3 +1,8 @@
-![](https://media.discordapp.net/attachments/1085020704401002640/1260097164059738112/killua_promo-ai-brush-removebg-307jub5.png?ex=668e146f&is=668cc2ef&hm=90a3c5e6fd8418bc003d8d81375fd60472dc827d505e6c1e8dc8c20269018adc&=&format=webp&quality=lossless&width=652&height=924)
+<div align="center">
 
+[atabook](https://izutsumi.atabook.org)  ![](https://i.postimg.cc/J7Tn8zDW/IMG-2368.png)  [about me](https://rentry.co/killugons)
+</div>
 
+<p align="center"> <img src="https://media.discordapp.net/attachments/1085020704401002640/1260782425282449459/IMG_3792.png?ex=669092a2&is=668f4122&hm=2a3ba74d17ae8bb603d6d35f0180bc2e5605131585c02cef92b2cae68c0e78dd&=&format=webp&quality=lossless&width=932&height=700"> </p>
+
+<div align-"center"> 
